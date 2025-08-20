@@ -1,2 +1,4 @@
 # Oop
-watddglglgllggllgaognaolwnfawn lna naln rwanr nawhrlep amwrkn awoen awhelp aweniawneiaw neaiwn eainw ewea
+
+Repo ini digunakan untuk menyoba nyoba nbanwnowanoanwonawot rawrawron aworn
+o' death, became my blade once more.
